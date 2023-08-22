@@ -1,1 +1,1 @@
-let's code togethrer
+let's code together
